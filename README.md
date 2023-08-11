@@ -1,2 +1,2 @@
 # ljcwbmzghdbphgxajpbmcgty
-R. I . K
+H I T
